@@ -1,1 +1,1 @@
-![alt text](https://images.pexels.com/photos/19283549/pexels-photo-19283549/free-photo-of-hot-air-balloons-in-cappadocia-turkey.jpeg?auto=compress&cs=tinysrgb&w=600&lazy=load)
+![alt text](https://buffer.com/cdn-cgi/image/w=1000,fit=contain,q=90,f=auto/library/content/images/size/w600/2023/10/free-images.jpg)
